@@ -42,4 +42,4 @@ I view my background in IT not as an end in itself, but as a powerful instrument
 
 > *"Geometry is not just about measuring the earth; it is about understanding the shape of reality."*
 
-[🔗 LinkedIn](https://www.linkedin.com/in/igorgeomath)
+[🔗 LinkedIn](https://www.linkedin.com/in/igorgeomath) [🔗 Youtube](https://www.youtube.com/@GeodesicaNerd)) [🔗 Lattes](http://lattes.cnpq.br/4638691192517961)
